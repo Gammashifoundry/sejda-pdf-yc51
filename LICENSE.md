@@ -1,4 +1,4 @@
-# 
+# new Wave para PC scripts es el mejor Wave para PC scripts con seguimiento de millaje y preparación de impuestos. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
